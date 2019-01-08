@@ -1,2 +1,0 @@
-
-Pimpun Thomnakan
